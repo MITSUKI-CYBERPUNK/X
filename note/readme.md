@@ -1,1 +1,1 @@
-
+Per Aspera Ad Astra
